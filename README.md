@@ -1,3 +1,3 @@
 - 👋 Hi, I’m Agnes
 - 🌱 I’m currently a Kenzie's Academy student!
-- 🌱 I'm just learning how to code, so it might no be perfect, but I'm trying!
+
